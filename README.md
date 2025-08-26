@@ -6,3 +6,5 @@ Refsnes Data AS.W3schools.1998.Available at:
 
 Bro Code. 31 May 2025.Available at: https://www.youtube.com/watch?v=HGTJBPNC-Gw&t=3297s(Date accessed 2025/05/05) 
 OpenAI ChatGPT (2025) ChatGPT response to John Stephens, 26 August.
+
+This website is about helping the homeless we are an   strive  provde shelters and food to the less fortunate.we help the homeless because we hope to adress the critical issues faces by individuals wothout homes prviding basic needs advocate change and create long term solutions the webste structre includes contacts, services, what the website is about
